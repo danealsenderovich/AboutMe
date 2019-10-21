@@ -1,4 +1,4 @@
-# AboutMe# Daneal Senderovich
+ Daneal Senderovich
 
 # Experience
 
@@ -38,6 +38,10 @@ The Masters School | Sep 2015-Jun 2019 | 3.5 GPA (Unweighted) | Dobbs Ferry, NY
 - Economics Club
 - Model United Nations
 - Debate Team
+- Cryptocurrency Trading and Mining
+- Varsity Baseball
+- Skiing
+- JV Soccer
 
 # Leadership Positions
 
@@ -45,4 +49,4 @@ The Masters School | Sep 2015-Jun 2019 | 3.5 GPA (Unweighted) | Dobbs Ferry, NY
 - Co-founder, treasurer (junior year), and president (senior year) of Flag Football Club at The Masters School
 - Co-founder and president of The Jewish Culture Club
 - 2019 Varsity Baseball Captain
-- 2017 JV Soccer Captain
+- 2016 JV Soccer Captain
