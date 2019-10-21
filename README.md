@@ -34,9 +34,9 @@ The Masters School | Sep 2015-Jun 2019 | 3.5 GPA (Unweighted) | Dobbs Ferry, NY
 #
 
 # ExtraCurricular Activities
--Children&#39;s Shakespeare Theater: Acted in various shows from the 6th grade until I graduated high school. Played parts such as Lysander in A Midsummer Night&#39;s Dream and Marc Antony in Antony and Cleopatra
--Economics Club
--Model United Nations
+- Children&#39;s Shakespeare Theater: Acted in various shows from the 6th grade until I graduated high school. Played parts such as Lysander in A Midsummer Night&#39;s Dream and Marc Antony in Antony and Cleopatra
+- Economics Club
+- Model United Nations
 - Debate Team
 
 # Leadership Positions
@@ -45,4 +45,4 @@ The Masters School | Sep 2015-Jun 2019 | 3.5 GPA (Unweighted) | Dobbs Ferry, NY
 - Co-founder, treasurer (junior year), and president (senior year) of Flag Football Club at The Masters School
 - Co-founder and president of The Jewish Culture Club
 - 2019 Varsity Baseball Captain
--2017 JV Soccer Captain
+- 2017 JV Soccer Captain
