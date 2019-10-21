@@ -25,21 +25,24 @@ Lehigh University | Aug 2019- Present        | Bethlehem, PA | Expected Major: B
 The Masters School | Sep 2015-Jun 2019 | 3.5 GPA (Unweighted) | Dobbs Ferry, NY
 
 # Awards and Acknowledgements
+- Model United Nations Outstanding Delegate Award: Representing Israel in the ECOFIN Committee discussing the financing of terrorism at Cornell Model United Nations 2018.
+- Business Dynamics Mock Investment Challenge Winner: Made a 33.5% return over approximately two months from March 30, 2019 to May 30, 2019.
+- Best Position Paper Award: Representing Iran in the DISEC Committee discussing Cybersecurity and nuclear disarmament at Princeton Model United Nations 2019.
+- Honor Roll:  Achieved my freshman year at The Masters School
+- Dean’s List: Achieved my sophomore, junior, and senior year at The Masters School
 
 #
 
 # ExtraCurricular Activities
-
--
-Children&#39;s Shakespeare Theater: Acted in various shows from the 6th grade until I graduated high school. Played parts such as Lysander in A Midsummer Night&#39;s Dream and Marc Antony in Antony and Cleopatra
--
-Model United Nations
+-Children&#39;s Shakespeare Theater: Acted in various shows from the 6th grade until I graduated high school. Played parts such as Lysander in A Midsummer Night&#39;s Dream and Marc Antony in Antony and Cleopatra
+-Economics Club
+-Model United Nations
 - Debate Team
 
 # Leadership Positions
 
 - Treasurer of Upper Cents Dormitories on The Residence Hall Council Executive Board at Lehigh University
 - Co-founder, treasurer (junior year), and president (senior year) of Flag Football Club at The Masters School
--
-Co-founder and president of The Jewish Culture Club
+- Co-founder and president of The Jewish Culture Club
 - 2019 Varsity Baseball Captain
+-2017 JV Soccer Captain
